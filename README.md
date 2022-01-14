@@ -11,7 +11,7 @@
  
  - ❤ Linux 🐧
 
- - Discord : YUU#2303
+ - Discord : Zαc₭:2303
 <!---
 entangle2giraffe/entangle2giraffe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
